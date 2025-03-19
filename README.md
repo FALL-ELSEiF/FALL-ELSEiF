@@ -1,3 +1,3 @@
-![image](https://github.com/user-attachments/assets/0a98c77c-4c84-48bd-b241-577c525008d4)
+![image](https://github.com/user-attachments/assets/f927d883-a41a-49fa-9bd4-6e5d1e1f5f22)
 
-we are the horridlings! please feed joy us (me)
+me and my awesome rigs
